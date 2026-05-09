@@ -1,2 +1,2 @@
-Вебсайт зробив Артем Ткаченко 
-по усім запитанням - Voyager_deatwatch@proton.me
+
+По усім запитанням - Voyager_deatwatch@proton.me
